@@ -1,0 +1,2 @@
+# LinkedIn
+Informację o mnie
