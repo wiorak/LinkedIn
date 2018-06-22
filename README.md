@@ -1,4 +1,4 @@
 # LinkedIn
 Informację o mnie
 
-#**https://www.linkedin.com/in/wioletta-barska-157ba851/**
+[Wioletta Barska] (**https://www.linkedin.com/in/wioletta-barska-157ba851/**"To the site")
